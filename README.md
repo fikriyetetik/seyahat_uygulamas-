@@ -1,1 +1,1 @@
-# seyahat_uygulamas-
+# seyahat_uygulamasi-
